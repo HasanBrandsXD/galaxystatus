@@ -1,0 +1,1 @@
+Visit this site at https://HasanBrandsXD.github.io/galaxystatus/
